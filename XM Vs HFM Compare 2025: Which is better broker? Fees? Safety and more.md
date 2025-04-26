@@ -253,6 +253,7 @@ Both offer outstanding support, but HFM’s dedicated managers give them a sligh
 - **Mobile Traders:** HFM’s proprietary app offers unique benefits
 
 💥💥💥 If Choose XM: [Open An Account](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=1) or [Go to broker](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=0) 👈
+
 💥💥💥 If Choose HFM: [Open An Account](https://register.hfm.com/sv/en/new-live-account?refid=384673) or [Go to broker](https://hfm.com/?refid=384673) 👈
 
 ---

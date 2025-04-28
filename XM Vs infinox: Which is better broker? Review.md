@@ -163,11 +163,11 @@ Both brokers support desktop, mobile, and web trading. 📱💻
 
 # Final Verdict: XM vs Infinox
 
-🥇 **If you are new or prefer commission-free trading, choose [XM](https://www.xm.com/)!**
+🥇 **If you are new or prefer commission-free trading, choose [XM](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=1)!**
 
-🥇 **If you are a seasoned trader seeking tighter spreads and ECN accounts, [Infinox](https://www.infinox.com/) is the right pick!**
+🥇 **If you are a seasoned trader seeking tighter spreads and ECN accounts, [Infinox] is the right pick!**
 
-🚀 **Ready to start trading? [Open an account now with XM!](https://www.xm.com/)**
+🚀 **Ready to start trading? [Open an account now with XM!]([https://www.xm.com/](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=1))**
 
 
 # FAQs
